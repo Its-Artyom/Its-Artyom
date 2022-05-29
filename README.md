@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Its-Artyom
+- 👀 I’m interested in calisthenics and coding :)
+- 🌱 I’m currently learning stuff at school( doing my GCSEs )
+- 💞️ I’m looking to collaborate on something great that could change the world.
+- 📫 How to reach me:
+  - Insta: @its_artyom
+  - LinkedIn: itsartyom
