@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Its-Artyom
+- 👋 Hi, I’m Artyom P.
 - 👀 I’m interested in calisthenics and coding :)
-- 🌱 I’m currently working on my health
+- 🌱 I’m currently studying in sixth form and working on my physical health.
 - 💞️ I’m looking to collaborate on something great that could change the world.
 - 📫 How to reach me:
-  - Insta: @its_artyom
+  - Instagram: @its_artyom
   - LinkedIn: itsartyom
